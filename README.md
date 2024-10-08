@@ -1,7 +1,7 @@
 
 ![GitHub](https://scontent.fcla2-1.fna.fbcdn.net/v/t39.30808-6/315024560_638925147935191_6836688397672135237_n.jpg?stp=dst-jpg_s960x960&_nc_cat=110&ccb=1-7&_nc_sid=cc71e4&_nc_eui2=AeFEIf312oLF-qqJdUR8PltH-5O_AyRqWy37k78DJGpbLSvZgqGoIIPz0g81ZFfGtnz2vjaRcJROeW3bJynowZx8&_nc_ohc=Di4LxRtGPokQ7kNvgEB8SgH&_nc_zt=23&_nc_ht=scontent.fcla2-1.fna&_nc_gid=ASlXSkLNEt0QO7TnaCVZ4z8&oh=00_AYAhdJvlcz3rnXh-rfPV-156SF2pF5WTaWKbEJkw81MutQ&oe=670A7271)
 
-### HI 👋, my name is FAISAL AHAMED
+### HI 👋, my name is FAISAL MAHAMUD
 #### GitHub
 I am here to help you discover the full potential of your company´s success through a great Marketing leadership and a continous support in every single step! I am a Social Media Marketing Excpert and I will work hard to grow your presence online and to give your business the final touch of success.
 
